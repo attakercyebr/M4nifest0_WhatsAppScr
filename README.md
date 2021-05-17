@@ -19,8 +19,8 @@
 
 # See how it works v1.0.0
 ----------------------
-- 🔞 https://www.youtube.com/watch?v=_zevZyXiVYk
-
+- 🔞 https://youtu.be/XrMdITSQG-4
+- 
 # How to receive :
 ----------------------
 - 📌 You can get the tool through the following sites or our Telegram channel
